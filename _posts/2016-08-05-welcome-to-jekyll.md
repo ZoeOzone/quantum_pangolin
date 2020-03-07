@@ -2,28 +2,12 @@
 layout: home
 title: Welcome to Jekyll!
 date: '2016-08-05 20:20:56 -0400'
-categories: writing
+categories: writing pangolin intrepid
 
 ---
 
-![2020-03-06-592981.gif](https://zoeozone.github.io/quantum_pangolin/assets/2020-03-06-592981.gif)
-You’ll find this post in your `_posts` directory. Go ahead and edit it and re-build the site to see your changes. You can rebuild the site in many different ways, but the most common way is to run `jekyll serve`, which launches a web server and auto-regenerates your site when a file is updated.
+![2020-03-06-592981.gif](https://zoeozone.github.io/quantum_pangolin/assets/2020-03-06-592981.gif)how you are fire maples improper scarlet so all the other shades nod to the melody of your simple delight sometimes you just sit on your ass with dust in your mouth and grit in your nails and teeth close my eyes as the crow flies i sew my heart to you they drink mad coffee and spend the afternoon pretending they’re blind with tape over their eyes. a couple bruises. smoking & bonking skulls i spy a trio of kangaroo mice nibbling on a cerulean mushroom BLINK a dram of pinwheels BLINK fuck it you can’t hide overnight in my silk flowers this is bonsai season motherfucking my tinsnips winnowing gunships this tsunami of plum blossoms and spindled writs of mandate. i try to think what I want if I could do anything so many parasols for all the teardrops in the ocean (the visage you conjured in broad swathes of indianthrone, once anchored in manifest by quick sable, in mesmeric caligraphy the emblem so resplendent to behold, the elixer of oracles was a lukewarm pitcher of cobwebs by compare to its generative force of zeal. fuck me i’ve groped in the ashes for the dross by the din of this tacky riccoco frame our majestic rune is rendered utterly tuneless) to see you once more it simply was never enough to burrow in the loam or slope with marsh herons deep the quill. ravenous for shill pop candy, nearly translucent dawn sparrowing aimless vitriol off in swales vetch tangets repurposing admonitions nigh on six gigs a cackle were it not so lithe in her wet sundress reviling all notions of balance in this ludicrous sudden rain OscarLavarOscarLavar on melodica (eharmony indeed) the raindrops they wearing herringbone tweeds for stable weather models drank my vi si b l e i n k • *•.•* V ^x.X^ b l i N K look into her eyes and know you’re fucked neither of you want anything swimmingly crisp atriculations gesso haphazard dynamo blueprints tetherball eyes eclipsed by lunatic burns elipse mollified nonetheless no spring no spark drown the wick window chase shadows across the ceiling a cats-eye moth of years loom on silent lips/ whisper aching for a single breath/ as you stand pouring pleas upon prayers/ your sigh the absolution i crave a kiss so strong bullets stop flying rhododendrons bloom desolate tank cannons shoot glitter bombs we two magical fools dance in the rain with a plethora of spoons. we spit pits touch irises lips drip go all pandemonium in a cool stairwell agog the pure physical perfection of a cute little baby caiman. look at those razors galavanting thru rushes and reeds less mogul more slalom she is sparkly in the gloaming these voices in your head are listening you told me you love my lips and how i mostly speak in monosyllables you seem so at peace with your puzzles I thought it best to just leave you swimming in thin air but now you’ve gone ask me a question so hard I revoke revolt resigned, my vinyl rainslicker utterances clutching a mascara my hands are startled doves (pockets sewn with enormous tortiseshell buttons) reticent redolent yet dulcet in blue galoshes I answer everything you give away for free it’s your smile that’s the best and it will never run out of ink. By the bald myopy he seizes me and I thought he would slit my throat or my tendons. hold still. Then he makes five slashes one at a time from flannel starfish and trying makes it go sideways like broiling an orchid your life is a jade shaped like a bird so burn a hole in the floorboards without these words they will not stand the threshing of unmet stones you ruin a perfect metaphor with one grain of doubt every other evening you wake mid-sentence into a daymare &throttle your clover &this brook force of anthem streaming from your mane to touch me without a body your heart feels better tracing contours my skin than anyone walking my streets. my whole being glows with you. what is that noise? everything you cant see. can you make it stop? ask it. does it listen? if you close your eyes in my fucking sleep. your dandelion wish little parasol return one growing there leaden your heart husk away blown spine by red stem fell my requiem for a squall desolate and skeletal plum locust razed without her kind word a sip of mercury only how do I say this in plain words? I was dying this morning until you gave word with honey already smashing my knee against the table corner beyond resilient both of us it’s just I was gonna crash down hard and become a shadow of a bird retreat into a sanctuary of burrowing napalm to say it right is like stripping off thigh highs soaked in superglue way beyond suicide what loss? you don’t lose your body when you burn alive what happens is your joy turns to stone and i was getting ready to go swimming to feel my weak ankle flutter in the current to kick soft to flex fearless of cruel sidewalks. she scurries all the butterflies back in the jar. screw the rain. we seek for things beyond us to entertain when all can be found within.
 
-To add new posts, simply add a file in the `_posts` directory that follows the convention `YYYY-MM-DD-name-of-post.ext` and includes the necessary front matter. Take a look at the source for this post to get an idea about how it works.
 
-Jekyll also offers powerful support for code snippets:
-
-```
-def print_hi(name)
-  puts "Hi, #{name}"
-end
-print_hi('Tom')
-#=> prints 'Hi, Tom' to STDOUT.
-```
-
-Check out the [Jekyll docs][jekyll-docs] for more info on how to get the most out of Jekyll. File all bugs/feature requests at [Jekyll’s GitHub repo][jekyll-gh]. If you have questions, you can ask them on [Jekyll Talk][jekyll-talk].
-
-[jekyll-docs]: http://jekyllrb.com/docs/home
-[jekyll-gh]:   https://github.com/jekyll/jekyll
-[jekyll-talk]: https://talk.jekyllrb.com/
-
+![2020-03-06-628783.jpg](https://zoeozone.github.io/quantum_pangolin/assets/2020-03-06-628783.jpg)
+![2020-03-06-904607.png](https://zoeozone.github.io/quantum_pangolin/assets/2020-03-06-904607.png)
